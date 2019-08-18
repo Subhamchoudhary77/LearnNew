@@ -1,2 +1,0 @@
-# LearnNew
-Positive attitude.
